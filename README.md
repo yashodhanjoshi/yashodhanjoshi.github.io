@@ -1,2 +1,0 @@
-# yashodhanjoshi.github.io
-Website
